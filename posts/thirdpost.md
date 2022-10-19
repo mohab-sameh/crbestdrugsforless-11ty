@@ -5,8 +5,8 @@ author: John D.
 summary: Discussing the relationship between use of different mattress materials
   (such as fiberglass) and the use of allergy prescription drugs.
 tags:
-  - tech
-  - politics
+  - health
+  - mattresses
 ---
 You know that pink material that looks like cotton candy in your walls? What if I told you that the substance in your mattress might be the same? The use of fiberglass in mattresses has generated a lot of controversy and discussion regarding its efficacy and general safety in recent years. Fortunately for you, we are available to address any queries you may have regarding the usage of fiberglass in mattresses.
 
