@@ -24,4 +24,4 @@ You should consider visiting a doctor right away. Always seek professional **med
 
 ## How To Prevent That From Happening
 
-You should always consider investing in a [high quality mattress](https://sleepiverse.com) or get an [air mattress alternative ](https://sleepiverse.com/faqs/air-mattress-alternatives/)that doesn't use fiberglass materials, but rather uses high quality natural **hypoallergenic alternatives**.
+You should always consider investing in a [high quality mattress](https://sleepiverse.com) or get an [air mattress alternative ](https://sleepiverse.com/faqs/air-mattress-alternatives/)that doesn't use fiberglass materials, but rather uses high quality natural **hypoallergenic alternatives** like the [four seasons mattress](https://sleepiverse.com/mattress-reviews/four-seasons-mattress-review/).
